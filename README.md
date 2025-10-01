@@ -1,0 +1,1 @@
+# fractal_hero_seminar_proposal
